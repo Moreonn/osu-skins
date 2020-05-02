@@ -7,3 +7,6 @@ This might not be updated
 
 # [-+ Shige](https://www.dropbox.com/s/7rtakre6ziicdur/-%2B%20Shige.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14850263/38fb)
+
+# [Aesthetic 1.3 (Ring)](https://www.dropbox.com/s/rmgs8vqiu2fdt9x/Aesthetic%201.3%20%28Ring%29.osk?dl=0)
+![](https://osu.ppy.sh/ss/14850282/6ffc)
