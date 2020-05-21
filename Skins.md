@@ -2,11 +2,11 @@
 
 This might not be updated
 
-# [- Moreon mix 02.05.2020](https://www.dropbox.com/s/dr8vzp9zcy8mmah/-%20Moreon%20mix%2002.05.2020.osk?dl=0)
+# [- Moreon mix 02.05.2020](https://drive.google.com/file/d/1tbU2twOrYmRtHoSnqjvKesVyQpVXrqc1/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/14848147/8cda)
 
-# [-+ Shige](https://www.dropbox.com/s/7rtakre6ziicdur/-%2B%20Shige.osk?dl=0)
+# [-+ Shige](https://drive.google.com/file/d/1qQzX6GFLHJQzngFvNrHfu3NUgq-6H_j9/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/14850263/38fb)
 
-# [Aesthetic 1.3 (Ring)](https://www.dropbox.com/s/rmgs8vqiu2fdt9x/Aesthetic%201.3%20%28Ring%29.osk?dl=0)
+# [Aesthetic 1.3 (Ring)](https://drive.google.com/file/d/1qvdU9-IrKs9E0fmLY6lzA5LKioYoBmNT/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/14850282/6ffc)
