@@ -1,6 +1,6 @@
-# Skins i use
+# My collection of skins
 
-This might not be updated
+Not all of them because i have like 300 skins in my folder, but those are the main ones and the ones im using from time to time.
 
 # [- Moreon mix 01.06.2020](https://drive.google.com/file/d/1HnbV0_byP6US19IDNYFHO0XSWTtv0gwW/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/15004655/9795)
