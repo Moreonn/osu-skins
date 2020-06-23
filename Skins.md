@@ -17,6 +17,12 @@ Not all of them because i have like 300 skins in my folder, but those are the ma
 # [FGSky+Shigetora](https://drive.google.com/file/d/1O8MVcw_vGcbJGvI4s3aYNmO_XOs-j6Pj/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/14958873/f012)
 
+# [aetrnaaberrateFujiwara v3 (Merami)](https://drive.google.com/file/d/194QK_MqUewN6HFvw1B8PopdSHDV0QeKf/view)
+![](https://skins.osuck.net/uploads/posts/2020-03/1584189023_screenshot8185.jpg)
+
+# [aetrnaaberrateFujiwara v2.5 (Merami)](https://drive.google.com/file/d/18NzmaVy-dT8DumBPjAIln1_aBPYqDEYw/view)
+![](https://skins.osuck.net/uploads/posts/2020-03/1584188832_screenshot8183.jpg)
+
 # [Spare Jace 6.25](https://drive.google.com/file/d/14xxXiOP8MRcxRprYUa01hLLNzSp0QH7T/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/14958892/faa7)
 
