@@ -32,5 +32,3 @@ Not all of them because i have like 300 skins in my folder, but those are the ma
 # [Aesthetic 1.3 (Ring)](https://drive.google.com/file/d/1qvdU9-IrKs9E0fmLY6lzA5LKioYoBmNT/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/14850282/6ffc)
 
-# [Tuna Selyu+Shige+New_sliderb](https://drive.google.com/file/d/1ebtLgELQrW4H21bv2jbL3zNsAnJTTuiX/view?usp=sharing)
-![](https://osu.ppy.sh/ss/15018670/67a2)
