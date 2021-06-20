@@ -1,4 +1,4 @@
-# My collection of skins
+# My collection of skins (outdated)
 
 Not all of them because i have like 300 skins in my folder, but those are the main ones and the ones im using from time to time.
 
